@@ -1,2 +1,2 @@
-### Hello it's me, Tim7
-BloodTest is no longer offensive
+### Warning
+User is suspected to be a crackhead
